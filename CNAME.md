@@ -1,1 +1,1 @@
-http://younghaoo.com
+younghaoo.com
